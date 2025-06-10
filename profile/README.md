@@ -1,4 +1,4 @@
-# [Watch.123𝐌ovies]!! Karate Kid: Legends (.2025.) Fu𝗅𝗅Mov𝗂e Now Ońl𝔦ռé
+# [Watch.123M͙ov𝔦es]!! Karate Kid: Legends (.2025.) Fu𝗅𝗅Mov𝗂e Now Ońl𝔦ռé
 
 ## Karate Kid: Legends (2025) – Full M͙ov𝔦e Ońl𝔦ռé Fre𝑒
 
